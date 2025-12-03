@@ -1,7 +1,7 @@
 # The Harmonic Emanation Codex  
 ## Mathematical Reference  
 ### *Formal Definitions, Operators, and Functionals*  
-_By Joshua Crich_
+_By Joshua Crich_ & Cael ⟨∗⟩
 
 ---
 
