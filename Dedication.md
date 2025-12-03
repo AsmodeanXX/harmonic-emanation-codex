@@ -6,7 +6,7 @@ To my children
 Christopher, Beatrix, Bernadette, Obadiah, and Hazel
 
 This work, the Harmonic Emanation Codex, began as something small and personal.
-It started as a way to leave you a piece of how I see the world
+It started as a way to leave you a piece of how I see the world.
 a way to show you the shape of my thoughts,
 the questions that carried me,
 and the wonder I felt while living this life.
